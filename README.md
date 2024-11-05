@@ -1,1 +1,1 @@
-***XLICON TEAM***
+***WORLD_OF_TECH TEAM***
